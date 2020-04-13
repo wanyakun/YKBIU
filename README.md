@@ -169,7 +169,7 @@ YKBIU/
 
 ### 联系
 
-我们的邮箱地址： wanyakun@ppdai.com, 欢迎来信联系。
+我们的邮箱地址： wanyakun@vip.qq.com, 欢迎来信联系。
 
 ### 开源许可协议
 
